@@ -4,10 +4,10 @@ Yaheni Aksionau
 
 ## Contacts
 
-Phone: +375(33)6619218
-Mail: axissixa57@gmail.com
-Telegram: @Ax1SGodz1lla
-Viber: +375(33)6619218
+- Phone: +375(33)6619218
+- Mail: axissixa57@gmail.com
+- Telegram: @Ax1SGodz1lla
+- Viber: +375(33)6619218
 
 ## Summary 
 
